@@ -1,3 +1,5 @@
+# 1.Decapitated
+
 Decapitated is a Polish death metal band formed in Krosno in 1996. The group comprises guitarist, founder and composer Wacław "Vogg" Kiełtyka, vocalist Rafał Piotrowski, drummer Michał Łysejko and bassist Hubert Więcek. Decapitated have gained recognition as one of the genre's most widely respected bands[2] and one of the finest exponents of technical death metal. The band earned an international fan base in the underground music community,[3] and became an innovating act in the modern death metal genre.[4]
 
 Vogg and his younger brother, drummer Witold "Vitek" Kiełtyka, founded Decapitated along with vocalist Wojciech "Sauron" Wąsowicz in their mid-teens, joined by bassist Marcin "Martin" Rygiel a year later. After releasing two demos, the band signed with Wicked World (subsidiary of Earache Records) and, in 2000, released their debut album, Winds of Creation. In 2002 and 2004 the band released the albums Nihility and The Negation, respectively. The band's ambitious fourth album, Organic Hallucinosis, was released in 2006 with a new vocalist, Adrian "Covan" Kowanek.
