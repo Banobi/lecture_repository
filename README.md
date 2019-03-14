@@ -1,3 +1,3 @@
 # lecture_repository
 
-README content remote
+README content local
